@@ -1,5 +1,5 @@
 # minhabio-gcc259
-
+![foto de perfil](https://github.com/user-attachments/assets/986c4d52-5ef8-40ea-af76-8ee2bb5f89e5)
 
 **PERFIL PESSOAL**
 Graduando em Sistemas de informação pela Universidade
